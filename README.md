@@ -10,3 +10,9 @@
 SatansSlut/SatansSlut is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+Hi, I'm Leishie. and I'm a BPD drug utiliser with ADHD, Autism and Oppositional Deffience Disorder. I also have DV-PTSD. a few years ago, I escaped a serve domestic violence situation. since then, my incredible husband Travers Beynon and I have been working together to repair the damaged cause to my brain and nervous system caused by my domestic violence situation.
+in the process, we have proven that Borderline Personality Disorder and PTSD are neurological disorders and not mental health disorders..... WE HAVE SCIENTIFIC PROOF!
+more testing is needed though, so we would <3 to collaborate with anyone knowledgeable and willing to help us. 
+We have already shared our discovery for the cure to Alzheimer's disease with the Australian scientific community..... this is something we are very proud of.
+
+much love and hugs xoxo
